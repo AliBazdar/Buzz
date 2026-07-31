@@ -1,0 +1,1 @@
+Activate Teacher Mode 
